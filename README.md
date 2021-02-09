@@ -1,2 +1,3 @@
 # hello-world
 Ideas and resources.
+Hi, I'm cristhian M. I'm a very curious person who is into a lot of stuff like sports, music, gaming, technology, the stock market etc...
